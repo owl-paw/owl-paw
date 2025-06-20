@@ -1,3 +1,3 @@
-## Hi there, it's _owlpaw_ here.
+## Hi there, it's _OwlPaw20_ here.
 
-I'm a eleventh-grade student from China.
+I'm a twelfth-grade student from China.
